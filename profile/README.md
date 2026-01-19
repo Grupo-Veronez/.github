@@ -1,4 +1,4 @@
-# Grupo Veronez 🚀
+# Grupo Veronez - GV
 
 **Innovation in Programming and Results in Marketing**
 
